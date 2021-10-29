@@ -1,1 +1,1 @@
-Audits are scheduled to be conducted in August through September 2021. We will update here once completed.
+Audit 1 by Solidified was completed on October 28, 2021
